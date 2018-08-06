@@ -1,0 +1,1 @@
+Euruditio mobile app
